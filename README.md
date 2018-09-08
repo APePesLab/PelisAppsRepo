@@ -11,4 +11,13 @@
 - Almacenados
 - Nosotros Los Nobles
 - Infierno
-asdfasdfº
+
+## Top Action
+
+- El justiciero
+- El justiciero 2
+- Logan Wolwerine
+- Pantera Negra
+- Mujer Maravilla
+- Dunkerque
+- El origen
